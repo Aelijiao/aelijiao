@@ -1,7 +1,7 @@
   ⟡ ݁₊ .` [ata](https://aelijiao.atabook.org/)
+
                  
-          
-<img width="2154" height="1320" alt="flins_genshin_impact_art_render_by_deg5270_dkn5t7n" src="https://github.com/user-attachments/assets/b4ce6dcc-0e19-41ce-a0e0-2a93c01e1762" />
+<img width="711" height="399" alt="Project Hail Mary (1)" src="https://github.com/user-attachments/assets/a18e9d87-50ee-406f-bdbf-81f418814146" />
 
 
                                                                     
