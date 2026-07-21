@@ -9,4 +9,4 @@ hello! im aelijiao also known as artemis, im an aroace and queer person ,i love 
 
 *grabs list, and inhales* homophobes,transphobes any other phobes, anything government related(idonttalkabttaht) , poeple who make weird jokes, etc. 
 
-for any space fans in particular please interact.. but not if you dont sign my ata first *steals your buckaroos*
+for any marvel fans in particular please interact.. but not if you dont sign my ata first *steals your buckaroos*
