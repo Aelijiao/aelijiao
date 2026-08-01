@@ -13,6 +13,6 @@
 hello! im aelijiao , im a very queer person ,i love to hang out with my friends and family and i care deeply for them, thats all. please when it comes to interacting with me, these type of people should STAY away : 
 
 
-*grabs list, and inhales* homophobes,transphobes any other phobes, anything government related(idonttalkabttaht) , poeple who make weird jokes, etc ,.. 
+*grabs list, and inhales* homophobes,transphobes any other phobes, anything government related(idonttalkabttaht) , poeple who make weird jokes, etc ,.. (its basic dni..)
 
 for any marvel fans in particular please interact.. but not if you dont sign my ata first *steals your buckaroos*
